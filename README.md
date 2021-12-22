@@ -1,2 +1,2 @@
 # my-cracked-clean-collection
-My cracks or cleans
+My own cracks
